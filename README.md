@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @IGyuvraj
-- 👀 I’m interested in ...female
-- 🌱 I’m currently learning ...in 10 class
+- 👀 I’m interested in ...Crypto
+- 🌱 I’m currently learning ...in 12th class
 - 💞️ I’m looking to collaborate on ... Instagram 
 - 📫 How to reach me ... yuvrajwere@gmail.com
 
